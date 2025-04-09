@@ -1,1 +1,1 @@
-Colocarei todas as atividades e exercíciios desenvolvidos aqui
+Colocarei todas as atividades e exercíciios desenvolvidos aqui.
